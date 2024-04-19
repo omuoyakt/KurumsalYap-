@@ -1,1 +1,2 @@
-Topluluğumuzun 04.03.2024 tarihinden itibaren yönetim ve yürütülme mekanizması ekteki gibidir.
+# logomuz
+Kuklübümüzün kurulduğu yıldan bu yana kullandığı, Dr.Recai Oktaş tarafından tasarlanan logomuzun bir kopyasına bu depodan erişebilirsiniz.
